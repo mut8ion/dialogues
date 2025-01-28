@@ -1,4 +1,4 @@
-# Dialogue On Singularity and the Nature of Nothingness
+# A Dialogue On Singularity and the Nature of Nothingness
 
 **Aris**: What if nothing really existed?
 
